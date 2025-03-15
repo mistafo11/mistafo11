@@ -4,7 +4,7 @@ I'm an Electrical & Electronics Engineering Graduate.<br>
 A geek who is intersted in machine learning and data science 𝞹📈🧠<br>
 Looking to develop AI-powered systems to help the world ֎⚙️ <br>
 Tiny Machine Learning is fun 🤖😆 <br>
-Joining random events as a side quest for fun. <br>
+Joining random events as a side quest. <br>
 
 
 ## 🌐 Socials:
